@@ -1,6 +1,6 @@
 ### Hi there, I'm Martina 👋
 
-🌱 PhD Candidate at ARC CoE Coral Reef Studies @jcu  
-🔭 Currently working on spatial and seasonal effects of macroalgae on coral demography  
+🌱 PhD Student at ARC CoE Coral Reef Studies @jcu and @AIMS
+🔭 Working on tropical macroalgal ecology and coral demography  
 😄 Pronouns: she/her  
 🇮🇹 From Rome, Italy
