@@ -1,6 +1,5 @@
 ### Hi there, I'm Martina 👋
 
-🌱 PhD Student at ARC CoE Coral Reef Studies @jcu and @AIMS <br>
-🔭 Working on the ecology of tropical macroalgae and coral demography  
+🌱 Postdoc at the Australian Institute of Marine Science <br>
+🔭 Working on tropical macroalgal communities and coral-macroalgal interactions <br>
 😄 Pronouns: she/her  
-🇮🇹 From Rome, Italy
